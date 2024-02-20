@@ -1,6 +1,6 @@
 DINO BALLETTI
 
-Developper, Angler, Gamer and miniature enthousiast !
+Developper, Angler, Gamer and Miniature wargames enthousiast !
 
 Currently freelancing, maybe your next project ?! 🚀
 
