@@ -3,6 +3,7 @@ DINO BALLETTI
 Developper, Angler, Gamer and Miniature wargames enthousiast !
 
 Currently freelancing, maybe your next project ?! 🚀
+Personal project : Bait recipes builder 
 
 <a href="https://www.dinoballetti-dev.fr/">WEBSITE<a>
 
